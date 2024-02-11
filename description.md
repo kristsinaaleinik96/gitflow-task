@@ -1,1 +1,1 @@
-
+APPLE MacBook Pro 14 M3 Pro/18GB/512GB SSD/14C GPU/macOS Laptop Space Black MRX33ZE/A
