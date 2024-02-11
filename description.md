@@ -1,1 +1,3 @@
 APPLE MacBook Pro 14 M3 Pro/18GB/512GB SSD/14C GPU/macOS Laptop Space Black MRX33ZE/A
+
+14-inch MacBook Pro breaks records with M3 Pro. This radically advanced chip boosts performance to enable you to work on even more hardware-intensive tasks. It also has a dazzling Liquid Retina XDR display and up to 18 hours of battery life. And it's now available in a new color: space black. The Apple M3 Pro chip with an 11-core CPU and 14-core GPU with hardware ray tracing acceleration gives you incredible power for demanding tasks like working on gigapixel panoramas or compiling millions of lines of code.
